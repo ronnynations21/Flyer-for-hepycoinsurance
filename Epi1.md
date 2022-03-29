@@ -1,5 +1,7 @@
 # Episode # 1 for to create Flyer for Hepyco Software Business.
 
+Day 1: March 29 of 2022
+
 I Decided to use Canvas for to create the Flyer.
 
 First Step: Accesss to the link (https://hepyco.com/page-seguros.html) and download or copy all the main information than i need for to do the Job.
