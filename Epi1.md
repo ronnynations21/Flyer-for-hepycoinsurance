@@ -10,7 +10,7 @@ Third Step: Select the correct Layout in Canva for my Flyer.
 
 Fourth step: Woalahh!!! And be Canva and the Flyer is made!!!
 
-You can to see (or usue it if you wish) my desing gear in this google drive link: (flyer.pdf)
+You can to see (or usue it if you wish) my desing gear in this google drive link: (Availabe soon!!) (flyer.pdf)
 
 
 
